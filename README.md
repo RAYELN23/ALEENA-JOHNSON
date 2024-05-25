@@ -1,4 +1,4 @@
-- 👋 Hi, I’m RAYELN23
+- 👋 Hi, I’m Aleena Johnson
 - 👀 I’m interested in coding and reading thriller books
 - 🌱 I’m currently in my first year of college
 - 💞️ I’m looking to collabrate with people who have true passion on their work
